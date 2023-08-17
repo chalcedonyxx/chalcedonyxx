@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chalcedonyxx
+- 👋 Hi, I’m @chalcedonyxx. i like fiddling around with things.
 - 👀 I’m an aspiring historian & writer who recently decided to learn how to code for fun!
 - 🌱 I’m currently learning with the CS50x online class. 
 - 💞️ I’m looking to collaborate on anything! 
