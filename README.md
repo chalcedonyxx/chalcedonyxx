@@ -1,5 +1,5 @@
 - 🦀 Hello, I’m @chalcedonyxx. i like fiddling around with things.
-- 🐌 I’m a history student with a coding problem.
+- 🐌 I’m a history student who sometimes does other things.
 - 🪱 be gay do crime 
 
 <!---
