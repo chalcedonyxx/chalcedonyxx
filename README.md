@@ -1,4 +1,4 @@
-- 🦀 Hello, I’m @chalcedonyxx. i like fiddling around with things.
+- 🦀 Hello, I’m @chalcedonyxx. 
 - 🐌 I’m a history student who sometimes does other things.
 - 🪱 be gay do crime 
 
